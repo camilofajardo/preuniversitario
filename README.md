@@ -1,2 +1,0 @@
-# preuniversitario
-gjg
